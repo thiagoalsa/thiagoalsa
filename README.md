@@ -31,4 +31,4 @@ If you have an interesting project or idea, feel free to reach out!
 
 ### 📫 Get in Touch
 
-Connect with me on [LinkedIn]([https://www.linkedin.com/in/thiago-de-almeida-santos-a5399793/](https://www.linkedin.com/in/thiago-santos-a5399793/)) to stay updated with my latest work, or drop me a message if you'd like to collaborate.
+Connect with me on [LinkedIn](https://www.linkedin.com/in/thiago-santos-a5399793/) to stay updated with my latest work, or drop me a message if you'd like to collaborate.
